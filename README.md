@@ -1,15 +1,14 @@
-Sempre caro mi fu quest'ermo colle 1,
-
-e questa siepe, che da tanta parte
-dell'ultimo orizzonte il guardo esclude.
+Sempre caro mi fu quest'ermo colle, 
+e questa siepe, che da tanta parte 
+dell'ultimo orizzonte il guardo esclude. 
 Ma sedendo e mirando, interminati
 spazi di là da quella, e sovrumani
 silenzi, e profondissima quïete
-io nel pensier mi ﬁngo 2, ove per poco
-il cor non si spaura 3. E come 4 il vento
+io nel pensier mi ﬁngo , ove per poco
+il cor non si spaura. E come il vento
 odo stormir tra queste piante, io quello
 inﬁnito silenzio a questa voce
-vo comparando: e mi sovvien l'eterno 5,
+vo comparando: e mi sovvien l'eterno,
 e le morte stagioni, e la presente
 e viva, e il suon di lei. Così tra questa
 immensità s'annega il pensier mio:
