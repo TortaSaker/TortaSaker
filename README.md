@@ -1,4 +1,5 @@
 Sempre caro mi fu quest'ermo colle 1,
+
 e questa siepe, che da tanta parte
 dell'ultimo orizzonte il guardo esclude.
 Ma sedendo e mirando, interminati
